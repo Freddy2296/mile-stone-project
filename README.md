@@ -1,4 +1,4 @@
-# mile-stone-project
+# The -Process 
 So this a website I created for the band  in hope's that people check them out and actually listen and understand them and their music.
 Also for the band to sale more merchandise and more of their music , the really goal here is to get the band out to the public.
 Our mission is to sale out show's and get more in the public eye so we can actually do what we do and create great music.
